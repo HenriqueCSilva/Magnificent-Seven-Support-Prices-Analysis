@@ -1,0 +1,1 @@
+# Magnificent-Seven-Support-Prices-Analysis
